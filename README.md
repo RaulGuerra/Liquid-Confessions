@@ -1,0 +1,2 @@
+# Liquid-Confessions
+Privacy Policy
